@@ -1,6 +1,6 @@
 Hi there 👋, Yousif Diza is here!
 
-<!--I am currently studying chemical engineering at the university of waterloo 
+I am currently studying chemical engineering at the university of waterloo 
 
 CHECK OUT MY ARTICLE:
 
